@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @RonPeter01
 - 👋 Call me @Ron
 - 👀 I’m interested in Freelancer
+- 👀 Certified freelancer on Fiverr
 - 🌱 I’m currently doing freelancer in Fiverr
 - 💞️ I’m looking to collaborate on Fiverr
 - 💞️ Good seller, Delivery on time, Good skills
